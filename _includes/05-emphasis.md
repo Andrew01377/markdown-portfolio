@@ -1,0 +1,6 @@
+# I don't know what to do now... Help me....
+*I need food and water...
+&Not really*
+%What does percent sign do?
+@Andrew03177 
+!Just testing out things
